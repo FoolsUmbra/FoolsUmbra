@@ -5,7 +5,7 @@
  
 <div id="header" align="center">
 
-[entry](https://hallooangeredfisheh.carrd.co)
+[**Card.**](https://hallooangeredfisheh.carrd.co)
 
 **She/her**
 
