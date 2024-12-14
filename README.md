@@ -7,6 +7,8 @@
 
 [**Card.**](https://hallooangeredfisheh.carrd.co)
 
+ **  𓇼𓏲*ੈ✩‧₊˚🎐**
+ 
 **She/her**
 
 **Aroace / ?**
