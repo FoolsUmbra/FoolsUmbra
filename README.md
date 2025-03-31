@@ -7,7 +7,7 @@
 
 [**Card.**](https://hallooangeredfisheh.carrd.co)
 
-<h1 style="color: red">♡⠀｡ she/her | bisexual!</h1>
+♡⠀ ⠀｡   **she/her**　| **bisexual!**
 
 [![147-sin-t-tulo-20250330191711.png](https://i.postimg.cc/tgdJzkn7/147-sin-t-tulo-20250330191711.png)](https://postimg.cc/zLBqznj1)
 [![tumblr-7f9aeda93537794f30cfde401d047cd6-5b0ac765-1280-gif.webp](https://i.postimg.cc/D0R7h44t/tumblr-7f9aeda93537794f30cfde401d047cd6-5b0ac765-1280-gif.webp)](https://postimg.cc/Mf0CbTDD)
