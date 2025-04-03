@@ -1,6 +1,6 @@
 [![153-sin-t-tulo-20250331154130.png](https://i.postimg.cc/MT2GY5Q4/153-sin-t-tulo-20250331154130.png)](https://postimg.cc/06nxkpZd)
 <div id="header" align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&pause=1000&color=AEC7DA&width=435&lines=+++++++MI+SAVIOR%2C+BEAUTIFUL+LADY" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=C6F7F4&width=435&lines=MY+SAVIOR%2C+BEAUTIFUL+LADY+" alt="Typing SVG" /></a>
  
 [![152-sin-t-tulo-20250331153619.png](https://i.postimg.cc/D0Q4GDpB/152-sin-t-tulo-20250331153619.png)](https://postimg.cc/bSJvc6ht)
  
