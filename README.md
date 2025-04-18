@@ -9,4 +9,4 @@
 [![162-sin-t-tulo-20250416120338.png](https://i.postimg.cc/wvDSqGz1/162-sin-t-tulo-20250416120338.png)](https://postimg.cc/Kkv9QQRb)
 [![160-sin-t-tulo-20250416105608.png](https://i.postimg.cc/430c5XY9/160-sin-t-tulo-20250416105608.png)](https://postimg.cc/67dT6JLW)
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&pause=1000&color=6E99DA&width=435&lines=oooo+smc+skin+come+to+me+pls+%3A(" alt="Typing SVG" /></a>
-[![image0.gif](https://i.postimg.cc/1t9wY8vf/image0.gif)](https://postimg.cc/d7xhhVPY)
+[![sage-of-truth-shadow-milk-cookie.gif](https://i.postimg.cc/7ZkZr4Np/sage-of-truth-shadow-milk-cookie.gif)](https://postimg.cc/kBTmWkzc)
