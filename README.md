@@ -1,14 +1,44 @@
-[![195-sin-t-tulo-20250607080749.png](https://i.postimg.cc/BnmrM8Lm/195-sin-t-tulo-20250607080749.png)](https://postimg.cc/dhTN0V9C)
-[![194-sin-t-tulo-20250607080323.png](https://i.postimg.cc/NGrQFx9B/194-sin-t-tulo-20250607080323.png)](https://postimg.cc/JtmfdZ52)
-[![195-sin-t-tulo-20250607080842.png](https://i.postimg.cc/d1YjC6sp/195-sin-t-tulo-20250607080842.png)](https://postimg.cc/DWxGkqbP)
-<div id="header" align="center">
- 
-[![Tumblr-l-13511005167342.png](https://i.postimg.cc/WbPHPkGv/Tumblr-l-13511005167342.png)](https://postimg.cc/LhNTthQC)
+<p align="center"> 
+    <p align="center">
 
-˘𒁹ㅤ ݃ㅤ˳  𓏼⠀ layout𓈒 Truth and Deceit
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4B6C80&width=435&lines=The+source+of+knowledge+is+truth+)](https://git.io/typing-svg)
-[![189-sin-t-tulo-20250504210513.png](https://i.postimg.cc/8kwDHznv/189-sin-t-tulo-20250504210513.png)](https://postimg.cc/s1Btfszf)
-[![191-sin-t-tulo-20250607082443.png](https://i.postimg.cc/qRWhnMxR/191-sin-t-tulo-20250607082443.png)](https://postimg.cc/Hc4k1mKD)
-[![200-sin-t-tulo-20250607084105.png](https://i.postimg.cc/TwdQS0zm/200-sin-t-tulo-20250607084105.png)](https://postimg.cc/qtF86sMM)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4E5F7F&width=435&lines=Yeah+I+got+his+skin+%5E_%5E%5E)](https://git.io/typing-svg)
-[![tumblr-7f9aeda93537794f30cfde401d047cd6-5b0ac765-1280-gif.webp](https://i.postimg.cc/ZKp7WWxW/tumblr-7f9aeda93537794f30cfde401d047cd6-5b0ac765-1280-gif.webp)](https://postimg.cc/3drC6J6h)
+ [![208-sin-t-tulo-20250710101322.png](https://i.postimg.cc/gc43FGnr/208-sin-t-tulo-20250710101322.png)](https://postimg.cc/0rMz7RGq)
+ 
+[![Tumblr-l-24204094900903.gif](https://i.postimg.cc/GpPMw6WK/Tumblr-l-24204094900903.gif)](https://postimg.cc/wtv5D4TR)
+</p>
+
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Permanent+Marker&pause=1000&color=9AA65F&width=435&lines=+++Please...+let+me+your+friend.;+++++++++++++++Friend...%3F;++++++++++++++++++...!!!;++++++++++++CURSE+YOU!!!;++++++++You+know+NOTHING!;++++++++You+are+NOTHING!" alt="Typing SVG" /></a>
+</p>
+
+<p align="center">
+   <br> ${\textsf{\color{#BDB663}aesop　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+ <br>
+  ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/victor-grantz">link directory</a>　　　　<a href="https://guns.lol/exorspace">guns.lol</a>　　⟢——
+     <br> ${\textsf{\color{#3e6115}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+ <br>
+   ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown rentry</a> ⠀⟢——————————
+         <br> ${\textsf{\color{#80c5bf}best viewed on pc .}}$ 
+ <br>
+  </p>
+
+<p align="center">
+<img src="https://files.catbox.moe/u9jp17.png"/>
+</p>
+
+
+<p align="center">
+<img src="https://files.catbox.moe/edgvvk.png"/>
+</p>
+<p align="center">
+  <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true)>
+<a href="https://github.com/shinminase/marquee/">
+  <img src="images/svg/marquee.svg"></img>
+</a>
+  
+<p align="center">
+<img src="https://files.catbox.moe/edgvvk.png"/>
+</p>
+
+<p align="center">
+graphic creds ; graphics were all made by me ! coding crds to user 
+
