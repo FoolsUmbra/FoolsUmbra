@@ -17,7 +17,7 @@
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
      <br> ${\textsf{\color{#C7D26E}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
-   ——————————⟣⠀ <a href="https://rentry.co/vorqsaap">rentry</a> ⠀⟢——————————
+   ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
          <br> ${\textsf{\color{#56643A}Shadowvanilla Lover :3 .}}$ 
  <br>
   </p>
