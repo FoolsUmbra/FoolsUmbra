@@ -1,6 +1,6 @@
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=706221&label=^w^+++"/>
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=9F7A74&label=^w^+++"/>
         
 [![214-sin-t-tulo-20250817131932.png](https://i.postimg.cc/zBzKdLt3/214-sin-t-tulo-20250817131932.png)](https://postimg.cc/Z9QWnqhh)
  
@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-   <br> ${\textsf{\color{#BDB663}aesop　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#9F7A74}aesop　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br>
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://foolsumbra.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
      <br> ${\textsf{\color{#C7D26E}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
