@@ -2,9 +2,9 @@
     <p align="center">
 <img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=706221&label=^w^+++"/>
         
- [![208-sin-t-tulo-20250710101322.png](https://i.postimg.cc/gc43FGnr/208-sin-t-tulo-20250710101322.png)](https://postimg.cc/0rMz7RGq)
+[![214-sin-t-tulo-20250817131932.png](https://i.postimg.cc/zBzKdLt3/214-sin-t-tulo-20250817131932.png)](https://postimg.cc/Z9QWnqhh)
  
-[![Tumblr-l-24204094900903.gif](https://i.postimg.cc/GpPMw6WK/Tumblr-l-24204094900903.gif)](https://postimg.cc/wtv5D4TR)
+[![Tumblr-l-13744874350818.gif](https://i.postimg.cc/NLq0zSsb/Tumblr-l-13744874350818.gif)](https://postimg.cc/T50GykWW)
 </p>
 
 <p align="center">
@@ -24,7 +24,7 @@
 
 <p align="center">
     
-[![208-sin-t-tulo-20250710101522.png](https://i.postimg.cc/QdctDq0S/208-sin-t-tulo-20250710101522.png)](https://postimg.cc/Wdbj60RJ)
+[![214-sin-t-tulo-20250817131946.png](https://i.postimg.cc/gjfwPrDV/214-sin-t-tulo-20250817131946.png)](https://postimg.cc/9wYXdms0)
 </p>
 
 
