@@ -1,10 +1,10 @@
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=9F7A74&label=^w^+++"/>
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=9C7237&label=^w^+++"/>
         
 [![214-sin-t-tulo-20250817131932.png](https://i.postimg.cc/zBzKdLt3/214-sin-t-tulo-20250817131932.png)](https://postimg.cc/Z9QWnqhh)
  
-[![Tumblr-l-13744874350818.gif](https://i.postimg.cc/NLq0zSsb/Tumblr-l-13744874350818.gif)](https://postimg.cc/T50GykWW)
+[![218-sin-t-tulo-20250913171619.png](https://i.postimg.cc/RVm5mRTw/218-sin-t-tulo-20250913171619.png)](https://postimg.cc/V5KHBXpN)
 </p>
 
 <p align="center">
