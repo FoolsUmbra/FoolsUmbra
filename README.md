@@ -1,6 +1,6 @@
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=9C7237&label=^w^+++"/>
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=A69B7F&label=^w^+++"/>
         
 [![219-sin-t-tulo-20250913175447.png](https://i.postimg.cc/2SmZnP73/219-sin-t-tulo-20250913175447.png)](https://postimg.cc/gnSjWt5P)
  
