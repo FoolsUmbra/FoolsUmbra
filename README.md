@@ -21,7 +21,5 @@
 <p align="center">
     
 [![219-sin-t-tulo-20250913175453.png](https://i.postimg.cc/523Fgnsg/219-sin-t-tulo-20250913175453.png)](https://postimg.cc/cvvH4Myt)
-</p>
-
-
-<p align="center">
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mdkjn6e3xcotzoxduxj4pujye4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=26231d&interchange=true&bar_color=c4b18f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![219-sin-t-tulo-20250913175447.png](https://i.postimg.cc/2SmZnP73/219-sin-t-tulo-20250913175447.png)](https://postimg.cc/gnSjWt5P)
