@@ -4,7 +4,7 @@
         
 [![219-sin-t-tulo-20250913175447.png](https://i.postimg.cc/2SmZnP73/219-sin-t-tulo-20250913175447.png)](https://postimg.cc/gnSjWt5P)
  
-[![218-sin-t-tulo-20250913173123.png](https://i.postimg.cc/tCJds0Db/218-sin-t-tulo-20250913173123.png)](https://postimg.cc/0bgK4BLX)
+[![218-sin-t-tulo-20250913173215.png](https://i.postimg.cc/DZ7LFRmt/218-sin-t-tulo-20250913173215.png)](https://postimg.cc/hJ3f1yLr)
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Berkshire+Swash&size=25&pause=1000&color=A47C41&center=true&random=true&width=435&lines=Oh+dear%2C+take+my+hand" alt="Typing SVG" /></a>
 <p align="center">
