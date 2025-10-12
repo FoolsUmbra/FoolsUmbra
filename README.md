@@ -7,10 +7,10 @@
    <br> ${\textsf{\color{#B8B3B0}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://espressolove.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
-     <br> ${\textsf{\color{#A3ABAB}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#839087}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#446B87}Shadowvanilla Lover :3 .}}$ 
+         <br> ${\textsf{\color{#44807B}Shadowvanilla Lover :3 .}}$ 
  <br>
   </p>
 
