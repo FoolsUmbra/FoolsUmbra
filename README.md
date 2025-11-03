@@ -3,14 +3,14 @@
 <img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=95958A&label=Tears+++"/>  
  <br> ${\textsf{\color{#A3ABAB}this is so fragile....}}$ 
  <br>
-<p align="center">                      <img src="https://files.catbox.moe/826h5r.png">
-   <br> ${\textsf{\color{#B8B3B0}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+<p align="center">                      <img src="https://files.catbox.moe/xq3ez3.png">
+   <br> ${\textsf{\color{#B9AC8A}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://espressolove.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
-     <br> ${\textsf{\color{#839087}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#AE683C}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#44807B}Shadowvanilla Lover :3 .}}$ 
+         <br> ${\textsf{\color{#7C5743}Shadowvanilla Lover :3 .}}$ 
  <br>
   </p>
 
