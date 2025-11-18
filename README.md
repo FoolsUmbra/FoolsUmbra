@@ -1,9 +1,7 @@
-<!-- My profile art and layouts aren't mine! They belong to @nillamaxxing in x!! :3 .-->
+<!-- My profile art aren't mine! They belong to @nillamaxxing in x!! :3 .-->
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=E6C8FF&label=Tears+++"/>  
- <br> ${\textsf{\color{#FDFFE9}this is so fragile....}}$ 
- <br>
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=E6C8FF&label=Espresso+++"/>  
 <p align="center">                      <img src="https://files.catbox.moe/7on513.png">
    <br> ${\textsf{\color{#C9FEEC}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
