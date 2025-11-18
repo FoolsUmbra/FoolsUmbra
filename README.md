@@ -1,17 +1,17 @@
 <!-- My profile art and layouts aren't mine! They belong to @nillamaxxing in x!! :3 .-->
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=95958A&label=Tears+++"/>  
- <br> ${\textsf{\color{#A3ABAB}this is so fragile....}}$ 
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=E6C8FF&label=Tears+++"/>  
+ <br> ${\textsf{\color{#FDFFE9}this is so fragile....}}$ 
  <br>
-<p align="center">                      <img src="https://files.catbox.moe/emn76j.png">
-   <br> ${\textsf{\color{#B9AC8A}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+<p align="center">                      <img src="https://files.catbox.moe/7on513.png">
+   <br> ${\textsf{\color{#C9FEEC}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://espressolove.straw.page">strawpage</a>　　　　<a href="https://hallooangeredfisheh.carrd.co">card</a>　　　　<a href="https://github.com/appledeception">alt account</a>　　⟢——
-     <br> ${\textsf{\color{#AE683C}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#D2EBFF}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#7C5743}Shadowvanilla Lover :3 .}}$ 
+         <br> ${\textsf{\color{#E9ADAC}Shadowvanilla Lover :3 .}}$ 
  <br>
   </p>
 
