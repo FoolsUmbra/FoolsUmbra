@@ -17,13 +17,10 @@
   </p>
 
 <p align="center">
-    
-[![219-sin-t-tulo-20250913175453.png](https://i.postimg.cc/523Fgnsg/219-sin-t-tulo-20250913175453.png)](https://postimg.cc/cvvH4Myt)
+   
+<img src="https://files.catbox.moe/eg4d3j.gif">
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mdkjn6e3xcotzoxduxj4pujye4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=b3b09d&bar_color_cover=false">
   </a>
  </p>
-
-[![219-sin-t-tulo-20250913175447.png](https://i.postimg.cc/2SmZnP73/219-sin-t-tulo-20250913175447.png)](https://postimg.cc/gnSjWt5P)
-
