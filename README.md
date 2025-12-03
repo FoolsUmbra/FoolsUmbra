@@ -1,16 +1,16 @@
 <!--Oh god oh god i'm so gay about pv and Mordecai Heller... hehe .-->
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=E6C8FF&label=Espresso+++"/>  
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=DB8683&label=Espresso+++"/>  
 <p align="center">                      <img src="https://files.catbox.moe/s2atgy.png">
     <p align="center">
-   <br> ${\textsf{\color{#C9FEEC}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#E7E8EA}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://espressolove.straw.page">strawpage</a>　　　　<a href="https://milkcrowns.carrd.co">card</a>　　　　<a href="https://github.com/milkcrowns">alt account</a>　　⟢——
-     <br> ${\textsf{\color{#D2EBFF}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#F30179}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#E9ADAC}Shadowvanilla Lover :3 .}}$ 
+         <br> ${\textsf{\color{#3D648E}Shadowvanilla Lover :3 .}}$ 
  <br>
   </p>
 
