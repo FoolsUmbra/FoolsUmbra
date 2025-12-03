@@ -1,7 +1,9 @@
 <!--Oh god oh god i'm so gay about pv and Mordecai Heller... hehe .-->
 <p align="center">
+<a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Mentiras%20%E2%99%A1&extraCount=6565&color=f30179&labelColor=DB8683"/></a>
+<img src="https://files.catbox.moe/4iaakj.webp">
 <img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=DB8683&label=Espresso+++"/>  
-<p align="center"> <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Mentiras%20%E2%99%A1&extraCount=6566&color=f30179&labelColor=DB8683"/></a>
+<p align="center">
     <img src="https://files.catbox.moe/s2atgy.png">
     <p align="center">
    <br> ${\textsf{\color{#E7E8EA}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
