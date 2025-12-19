@@ -23,20 +23,3 @@
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mdkjn6e3xcotzoxduxj4pujye4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=b3b09d&bar_color_cover=false">
   </a>
-     
- <summary> ${\textsf{\color{#076363}——————————————————————————}}$ 
- <br> ${\textsf{\color{#076363}click for more info}}$ 
- <br>
-
- <!-- replace hashtag with actual links-->  
- <p align="center"> 
- <a href="#">link 1</a>, 
- <a href="#">link 2</a>, 
- <a href="#">link 3</a> 
- </p>
-
-</summary>
-
- <!-- add extra information here --> 
-<li>If you want to interact with me, that's fine, although sometimes I'm the one who wants to interact, but then I regret it because of the embarrassment. Also, if you want to show me any affection, that's fine too, it's just that I find it hard to express it as well, but just wait for time</li>
-</details>
