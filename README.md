@@ -21,11 +21,7 @@
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mdkjn6e3xcotzoxduxj4pujye4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=b3b09d&bar_color_cover=false">
   </a>
-    <p align="center">
-<table>
-<tr>
-<th>
-$\color{Goldenrod}{\textsf{Read the strawpage before interacting.}}$<br>
-</th>
-</tr>
-</table>
+    <p align="center">    
+       
+https://github.com/user-attachments/assets/004a6a35-1c10-4cb9-abe5-68e506ad8f3b
+
