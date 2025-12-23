@@ -2,8 +2,7 @@
 <p align="center">
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Lies%20%E2%99%A1&extraCount=6565&color=FDEDD8&labelColor=FFB165"/></a>
 <img src="https://files.catbox.moe/4iaakj.webp">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=DB8683&label=Espresso+++"/>  
-<p align="center">
+<a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=love%20%E2%99%A1&extraCount=8284&color=00344C&labelColor=FDEDD8"/></a>
 <img width="300" height="300" alt="64471029_zre" src="https://files.catbox.moe/tbz1z8.png" />
    <br> ${\textsf{\color{#FDEDD8}heaven　　she /　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
