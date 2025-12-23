@@ -22,6 +22,9 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mdkjn6e3xcotzoxduxj4pujye4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=b3b09d&bar_color_cover=false">
   </a>
     <p align="center">    
-       
-https://github.com/user-attachments/assets/004a6a35-1c10-4cb9-abe5-68e506ad8f3b
+
+    
+
+https://github.com/user-attachments/assets/3675ca8a-294f-4882-bf20-c2d58edbc42a
+
 
