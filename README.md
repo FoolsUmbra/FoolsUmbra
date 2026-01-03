@@ -3,7 +3,7 @@
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Lies%20%E2%99%A1&extraCount=6565&color=FDEDD8&labelColor=FFB165"/></a>
 <img src="https://files.catbox.moe/4iaakj.webp">
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=love%20%E2%99%A1&extraCount=8284&color=00344C&labelColor=FDEDD8"/></a>
-<img src="https://files.catbox.moe/ahiub3.png" />
+<img src="https://files.catbox.moe/a9xzlk.png" />
    <br> ${\textsf{\color{#FDEDD8}heaven　　she /　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
   ——⟣　　<a href="https://foolsumbra.atabook.org/">atabook</a>　　　　<a href="https://dailyvanilla.straw.page">strawpage</a>　　　　<a href="https://milkcrowns.carrd.co">card</a>　　　　<a href="https://github.com/milkcrowns">alt account</a>　　⟢——
