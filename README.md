@@ -10,9 +10,9 @@ $\small\textcolor{#530019}{\textsf{or}}$
 $\small\textcolor{#531F29}{\textsf{dniuf,}}$
 $\small\textcolor{#8e2d1c}{\textsf{check}}$
 $\small\textcolor{#A34F19}{\textsf{the}}$
-$\small\textcolor{#9D461A}{\textsf{rentry}}$
-$\small\textcolor{#cc6814}{\textsf{before}}$
-$\small\textcolor{#CC9314}{\textsf{interacting.}}$
+$\small\textcolor{#e35b87}{\textsf{rentry}}$
+$\small\textcolor{#6e4614}{\textsf{before}}$
+$\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    
   </p>         
    <p align="center">
