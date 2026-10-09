@@ -2,7 +2,7 @@
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Cute%20%E2%99%A1&extraCount=6565&color=530019&labelColor=1f0700"/></a>
 <img src="https://files.catbox.moe/sb2mez.webp">
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=love%20%E2%99%A1&extraCount=828&color=1f0700&labelColor=ffcf8f"/></a> 
-<img width="2249" height="1451" alt="327 sin título_20260916163816 (1)" src="https://github.com/user-attachments/assets/e3f96088-7f9e-4f6c-a84c-81b0e5b5120c" />
+<img width="2048" height="1536" alt="307 sin título_20261009154452 (2)" src="https://github.com/user-attachments/assets/9f7d8ab6-a5b2-4166-ac19-6f12dc3321d4" />
    <p align="center">
 <a 
  <br> $\small\textcolor{#1f0700}{\textsf{dni}}$
