@@ -21,3 +21,11 @@ $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    <a href="https://rentry.co/Thelastcard"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=e35b87&center=true&vCenter=true&width=200&height=30&lines=rentry.co" alt="Typing SVG" /></a>
 <p align="center">
  <br> 
+<p align="center">
+<details>
+<summary> $\small\textcolor{#ffcf91}{\textsf{♡}}$  </summary>
+
+$\small\textcolor{#6e4614}{\textsf{c+h freely all the time, my main is @abyssegoistT, I really don't mind being featured on Pinterest 
+}}$
+<p align="center">
+ <br> 
