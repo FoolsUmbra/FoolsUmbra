@@ -1,7 +1,7 @@
 <p align="center">
-<a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Cute%20%E2%99%A1&extraCount=6565&color=530019&labelColor=1f0700"/></a>
+<a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=Cute%20%E2%99%A1&extraCount=6565&color=ffcf91&labelColor=ef8ad6"/></a>
 <img src="https://files.catbox.moe/sb2mez.webp">
-<a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=love%20%E2%99%A1&extraCount=828&color=1f0700&labelColor=ffcf8f"/></a> 
+<a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=love%20%E2%99%A1&extraCount=828&color=e35b87&labelColor=ffcf8f"/></a> 
 <img width="2048" height="1536" alt="307 sin título_20261009154452 (2)" src="https://github.com/user-attachments/assets/9f7d8ab6-a5b2-4166-ac19-6f12dc3321d4" />
    <p align="center">
 <a 
