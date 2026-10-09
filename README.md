@@ -5,12 +5,14 @@
 <img width="2048" height="1536" alt="307 sin título_20261009154452 (2)" src="https://github.com/user-attachments/assets/9f7d8ab6-a5b2-4166-ac19-6f12dc3321d4" />
    <p align="center">
 <a 
- <br> $\small\textcolor{#1f0700}{\textsf{dni}}$
-$\small\textcolor{#6e4614}{\textsf{or}}$
-$\small\textcolor{#531F29}{\textsf{dniuf,}}$
-$\small\textcolor{#8e2d1c}{\textsf{check}}$
-$\small\textcolor{#6e4614}{\textsf{the}}$
-$\small\textcolor{#e35b87}{\textsf{rentry}}$
+
+   
+ <br> $\small\textcolor{#ef8ad6}{\textsf{dni}}$
+$\small\textcolor{#ffcf91}{\textsf{or}}$
+$\small\textcolor{#ef8ad6}{\textsf{dniuf,}}$
+$\small\textcolor{#ffcf91}{\textsf{check}}$
+$\small\textcolor{#ef8ad6}{\textsf{the}}$
+$\small\textcolor{#ffcf91}{\textsf{rentry}}$
 $\small\textcolor{#ef8ad6}{\textsf{before}}$
 $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    
