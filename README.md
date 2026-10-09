@@ -21,4 +21,3 @@ $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    <a href="https://rentry.co/Thelastcard"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=e35b87&center=true&vCenter=true&width=200&height=30&lines=rentry.co" alt="Typing SVG" /></a>
 <p align="center">
  <br> 
- <img width="540" height="304" alt="Tumblr_l_10332751024153" src="https://github.com/user-attachments/assets/ca590ffd-ecb4-4c9f-bfd0-24e16dc17db2" />
