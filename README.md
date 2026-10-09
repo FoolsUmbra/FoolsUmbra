@@ -22,10 +22,4 @@ $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
 <p align="center">
  <br> 
 <p align="center">
-<details>
-<summary> $\small\textcolor{#ffcf91}{\textsf{♡}}$  </summary>
 
-$\small\textcolor{#6e4614}{\textsf{c+h freely all the time, my main is @abyssegoistT, I really don't mind being featured on Pinterest 
-}}$
-<p align="center">
- <br> 
