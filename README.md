@@ -10,10 +10,10 @@
  <br> $\small\textcolor{#814997}{\textsf{dni}}$
 $\small\textcolor{#964696}{\textsf{or}}$
 $\small\textcolor{#C44093}{\textsf{dniuf,}}$
-$\small\textcolor{#ffcf91}{\textsf{check}}$
-$\small\textcolor{#ef8ad6}{\textsf{the}}$
+$\small\textcolor{#C54193}{\textsf{check}}$
+$\small\textcolor{#D84282}{\textsf{the}}$
 $\small\textcolor{#ffcf91}{\textsf{rentry}}$
-$\small\textcolor{#ef8ad6}{\textsf{before}}$
+$\small\textcolor{#F297C8}{\textsf{before}}$
 $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    
   </p>         
