@@ -7,8 +7,8 @@
 <a 
 
    
- <br> $\small\textcolor{#ef8ad6}{\textsf{dni}}$
-$\small\textcolor{#ffcf91}{\textsf{or}}$
+ <br> $\small\textcolor{#614E98}{\textsf{dni}}$
+$\small\textcolor{#D2327F}{\textsf{or}}$
 $\small\textcolor{#ef8ad6}{\textsf{dniuf,}}$
 $\small\textcolor{#ffcf91}{\textsf{check}}$
 $\small\textcolor{#ef8ad6}{\textsf{the}}$
