@@ -11,9 +11,9 @@
 $\small\textcolor{#964696}{\textsf{or}}$
 $\small\textcolor{#C44093}{\textsf{dniuf,}}$
 $\small\textcolor{#C54193}{\textsf{check}}$
-$\small\textcolor{#D84282}{\textsf{the}}$
-$\small\textcolor{#ffcf91}{\textsf{rentry}}$
-$\small\textcolor{#F297C8}{\textsf{before}}$
+$\small\textcolor{#DB4983}{\textsf{the}}$
+$\small\textcolor{#EF8AD5}{\textsf{rentry}}$
+$\small\textcolor{#F7AFB0}{\textsf{before}}$
 $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    
   </p>         
