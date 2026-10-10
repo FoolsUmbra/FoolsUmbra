@@ -21,5 +21,16 @@ $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
    <a href="https://rentry.co/Thelastcard"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=e35b87&center=true&vCenter=true&width=200&height=30&lines=rentry.co" alt="Typing SVG" /></a>
 <p align="center">
  <br> 
-<p align="center">
+<div align="center">
 
+  
+<details>
+<summary> </summary>
+
+$\small\textcolor{#F39FC0}{\textsf{c+h freely all the time, my main is @abyssegoistT, I really don't mind being featured on Pinterest 
+}}$
+
+
+<img width="300" height="300" alt="336 sin título_20261010161700" src="https://github.com/user-attachments/assets/ba2a0203-aee7-4c45-a8f2-9bb4607f7ac4" />
+
+</details>
