@@ -31,6 +31,6 @@ $\small\textcolor{#F39FC0}{\textsf{c+h freely all the time, my main is @abyssego
 $\small\textcolor{#F39FC0}{\textsf{don't mind being featured on Pinterest}}$
 
 
-<img width="300" height="300" alt="healing" src="https://github.com/user-attachments/assets/8eb850dd-a313-4adf-8db7-787ab04c04ea" />
+<img width="736" height="736" alt="336 sin título_20261010163221" src="https://github.com/user-attachments/assets/b64b012c-29be-4f78-8004-b4685fdaf61f" />
 
 </details>
