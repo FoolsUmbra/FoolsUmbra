@@ -27,10 +27,10 @@ $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
 <details>
 <summary> </summary>
 
-$\small\textcolor{#F39FC0}{\textsf{c+h freely all the time, my main is @abyssegoistT, I really don't mind being featured on Pinterest 
-}}$
+$\small\textcolor{#F39FC0}{\textsf{c+h freely all the time, my main is @abyssegoistT, I really}}$
+$\small\textcolor{#F39FC0}{\textsf{don't mind being featured on Pinterest}}$
 
 
-<img width="300" height="300" alt="336 sin título_20261010161700" src="https://github.com/user-attachments/assets/ba2a0203-aee7-4c45-a8f2-9bb4607f7ac4" />
+<img width="300" height="300" alt="healing" src="https://github.com/user-attachments/assets/8eb850dd-a313-4adf-8db7-787ab04c04ea" />
 
 </details>
