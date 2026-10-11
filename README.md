@@ -25,7 +25,7 @@ $\small\textcolor{#ffcf91}{\textsf{interacting.}}$
 
   
 <details>
-<summary> </summary>
+<summary> $\small\textcolor{#ffcf91}{\textsf{♡}}$ </summary>
 
 $\small\textcolor{#F39FC0}{\textsf{c+h freely all the time, my main is @abyssegoistT, I really}}$
 $\small\textcolor{#F39FC0}{\textsf{don't mind being featured on Pinterest}}$
