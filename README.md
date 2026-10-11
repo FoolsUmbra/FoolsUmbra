@@ -2,7 +2,8 @@
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=romance%20%E2%99%A1&extraCount=6565&color=ffcf91&labelColor=ef8ad6"/></a>
 <img src="https://files.catbox.moe/yf4mn6.webp">
 <a href="https://hits.sh/github.com/FoolsUmbra/hits/"><img alt="Éxitos" src="https://hits.sh/github.com/FoolsUmbra/hits.svg?label=love%20%E2%99%A1&extraCount=828&color=e35b87&labelColor=ffcf8f"/></a> 
-<img width="2048" height="1536" alt="307 sin título_20261009154452 (2)" src="https://github.com/user-attachments/assets/9f7d8ab6-a5b2-4166-ac19-6f12dc3321d4" />
+<img src="https://files.catbox.moe/p7y0nl.png">
+<a 
    <p align="center">
 <a 
 
@@ -31,6 +32,7 @@ $\small\textcolor{#F39FC0}{\textsf{c+h freely all the time, my main is @abyssego
 $\small\textcolor{#F39FC0}{\textsf{don't mind being featured on Pinterest}}$
 
 
-<img width="736" height="736" alt="336 sin título_20261010163221" src="https://github.com/user-attachments/assets/b64b012c-29be-4f78-8004-b4685fdaf61f" />
-
+<img src="https://files.catbox.moe/pbc0qn.png">
+<a 
+   
 </details>
